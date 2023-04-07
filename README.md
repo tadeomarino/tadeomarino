@@ -1,5 +1,5 @@
 
-### Hola, soy Tadeo Marino 👋
+### Hi there! 👋 I'm Tadeo.
 
 ---
 
